@@ -1,3 +1,4 @@
+<img src="duong_dan/den.png" class="image-to-rotate" />
                                                         *I'm hidden under your bed*
  
  <p align="center">
