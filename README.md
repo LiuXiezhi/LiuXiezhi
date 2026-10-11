@@ -1,4 +1,6 @@
-<img src="duong_dan/den.png" class="image-to-rotate" />
+<p align="center">
+  <img src="https://github.com/user-attachments/assets/94b39528-5af5-4f09-943f-778df7ed13c7" alt="Trang trí viền hoa" width="100%" />
+</p>
                                                         *I'm hidden under your bed*
  
  <p align="center">
