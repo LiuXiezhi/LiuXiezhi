@@ -1,5 +1,5 @@
 *I'm hidden under your bed*
- <img width="1177" height="1150" alt="1d5c47145d08ddf4f2960d05d0b9607e" src="https://github.com/user-attachments/assets/94b39528-5af5-4f09-943f-778df7ed13c7" />
+ <img width="500" height="500" alt="1d5c47145d08ddf4f2960d05d0b9607e" src="https://github.com/user-attachments/assets/94b39528-5af5-4f09-943f-778df7ed13c7" />
 
 **LiuXiezhi/LiuXiezhi** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
