@@ -8,4 +8,4 @@ The pfp and art from: @Boooo_sa2 (x)
 </p>
 <p align="center"> We all know that all of your skin ideas is mine and my friends, dear the one everyone knows who it is =)) 
 <p align="center"> ⬇
-<p align="center"><a href="https://https://liuxiezhi.straw.page/">˖°𓇼🌊⋆🐚🫧</a>
+<p align="center"><a href="https://liuxiezhi.straw.page/">˖°𓇼🌊⋆🐚🫧</a>
